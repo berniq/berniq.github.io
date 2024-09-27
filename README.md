@@ -1,1 +1,0 @@
-# berniq.github.io
